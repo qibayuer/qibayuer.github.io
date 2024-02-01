@@ -4,7 +4,7 @@
 <span style="color: #FF0033;">《牛娃养成三套秘笈》</span><br>
 <span style="color: #FF0033;">《学习表格--高清打印版》</span>
 <span style="color: #FF0033;"><br>
-精华资源目录</span>
+<strong>千份</strong>精华资源目录</span> (含下载链接)
 <p>……</p>
 <h2><a href="https://www.yuque.com/beidou61/farl9q/mkbcgh" target="_blank"><span style="color: #FF0033;">点击进入【大本营】</span></a></h2>
 <p>失联的时候，先去公众号【其爸淡定育儿】看看。<br>
