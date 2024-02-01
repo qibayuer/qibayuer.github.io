@@ -11,3 +11,4 @@
   <strong>↓↓</strong> 重点资料，都在群里。<strong>↓↓</strong><br>
   <strong>↓↓</strong> 通过公众号的菜单入群 <strong>↓↓</strong></p>
 <p><img src="https://i.postimg.cc/3wXBDx3c/image.png" ></p>
+<img src="https://i.postimg.cc/JhYbXD9K/186.png">
